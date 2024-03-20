@@ -1,0 +1,2 @@
+# Nor
+Bznkxn
